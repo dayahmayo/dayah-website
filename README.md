@@ -1,1 +1,0 @@
-# dayahmayo.github.io
